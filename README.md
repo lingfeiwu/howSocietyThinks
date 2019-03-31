@@ -1,0 +1,2 @@
+# howSocietyThinks
+GitHub Pages
